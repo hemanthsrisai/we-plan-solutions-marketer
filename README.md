@@ -5,4 +5,6 @@ Then after I coordinated with colleagues, media representatives and other profes
 implement multi-channel marketing strategies.
 Delivered polished and informative presentations to highlight products and close consistent
 sales. Grew business by generating new referrals for the company.
+![marketing](https://user-images.githubusercontent.com/43237055/117562462-b7449f00-b0bc-11eb-9e1c-5f7e67f287d9.JPG)
+
 
